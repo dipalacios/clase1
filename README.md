@@ -3,7 +3,7 @@
 ## Participantes: 
 
 Diego Palacios
-Andrea Esquivel
+Andrea Esquivel - México
 Matias Vince
 
 Colombia
