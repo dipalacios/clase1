@@ -2,7 +2,6 @@
 
 ## Participantes: 
 
-Diego Palacios
-Andrea Esquivel
-Matias Vince
-Argentina
+Diego Palacios - Colombia
+Andrea Esquivel - Mexico
+Matias Vince - Argentina
